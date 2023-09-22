@@ -6,4 +6,4 @@ I didn't think it necessary to add the gury details of the project as it would m
 
 If after looking through this file, my patner decides to edit it and add more details, it's a win-win.
 
-Cheere to patnership, however temporary it may be! 
+Cheers to patnership, however temporary it may be! 
